@@ -1,1 +1,1 @@
-# PrepCouseHenry
+Este proyecto es de propiedad de Sebas
